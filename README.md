@@ -1,4 +1,4 @@
-## Domains for Sale
+## Premium
 
 ### Technology
 * [forwrd.me](https://www.namecheap.com/domains/registration/results/?domain=forwrd.me)
