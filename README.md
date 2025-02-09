@@ -1,5 +1,3 @@
-## Domains for Sale
-
 ### Technology
 * [forwrd.me](https://www.namecheap.com/domains/registration/results/?domain=forwrd.me)
 
