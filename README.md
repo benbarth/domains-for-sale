@@ -1,12 +1,9 @@
 ## Domains for Sale
 
-Find them on [Namecheap Market](https://www.namecheap.com/market/)
-
 ### Technology
-* forwrd.me
+* [forwrd.me](https://www.namecheap.com/domains/registration/results/?domain=forward.me)
 
 ### Parenting
-* essential.deals
 * parenting.deals
 * parenting.bargains
 * parenting.coupons
